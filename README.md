@@ -10,6 +10,8 @@
 
 ---
 
+GÜNCEL GİRİŞ İÇİN TIKLAMANIZ YETERLİDİR.
+
 🎲 GrandPashaBet, modern ve kullanıcı dostu arayüzüyle 
 
 🖥 En iyi online bahis deneyimini sunmak için geliştirildi!
